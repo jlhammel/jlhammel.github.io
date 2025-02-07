@@ -1,1 +1,0 @@
-# jlhammel.github.io
